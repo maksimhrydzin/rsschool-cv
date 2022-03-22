@@ -1,1 +1,1 @@
-# rsschool-cv
+https://maksimhrydzin.github.io/rsschool-cv/cv
